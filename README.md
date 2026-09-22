@@ -4,6 +4,6 @@
 =======
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Stay hungry, stay foolish." - Steve Jobs
+> "The Right Word May Be Effective, But No Word Was Ever As Effective As A Rightly Timed Pause." — *Mark Twain*
 <!-- QUOTE_END -->
 
