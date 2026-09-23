@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "A calamity does not descend except due to a sin and it is not lifted except with repentance." — *Ali ibn Abi Talib (R.A)*
+> "We must think and act like a nation of a billion people and not like that of a million people. Dream, dream, dream!" — *Abdul Kalam*
 <!-- QUOTE_END -->
 
