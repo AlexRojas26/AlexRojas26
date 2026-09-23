@@ -4,6 +4,6 @@
 =======
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "The Right Word May Be Effective, But No Word Was Ever As Effective As A Rightly Timed Pause." — *Mark Twain*
+> "A calamity does not descend except due to a sin and it is not lifted except with repentance." — *Ali ibn Abi Talib (R.A)*
 <!-- QUOTE_END -->
 
