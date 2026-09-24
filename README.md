@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "We must think and act like a nation of a billion people and not like that of a million people. Dream, dream, dream!" — *Abdul Kalam*
+> "As a young citizen of India, armed with technology and love for my nation, I realize, a small aim is a crime." — *Abdul Kalam*
 <!-- QUOTE_END -->
 
