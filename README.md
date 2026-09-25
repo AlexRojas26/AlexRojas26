@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "As a young citizen of India, armed with technology and love for my nation, I realize, a small aim is a crime." — *Abdul Kalam*
+> "The nourishment of body is food, while the nourishment of the soul is feeding others." — *Ali ibn Abi Talib (R.A)*
 <!-- QUOTE_END -->
 
