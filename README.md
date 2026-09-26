@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "The nourishment of body is food, while the nourishment of the soul is feeding others." — *Ali ibn Abi Talib (R.A)*
+> "In Order To Exist Just Once In The World, It Is Necessary Never Again To Exist." — *Albert Camus*
 <!-- QUOTE_END -->
 
