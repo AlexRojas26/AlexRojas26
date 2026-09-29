@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Let Us Not Be Too Particular; It Is Better To Have Old Secondhand Diamonds Than None At All." — *Mark Twain*
+> "The vision of the eye is limited; the vision of the heart transcends all barriers of time and space." — *Ali ibn Abi Talib (R.A)*
 <!-- QUOTE_END -->
 
