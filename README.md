@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Success Consists Of Going From Failure To Failure Without Loss Of Enthusiasm." — *Winston Churchill*
+> "Plants And Minerals Are Bound To Predestination. The Faithful Is Only Bound To The Divine Orders." — *Muhammad Iqbal*
 <!-- QUOTE_END -->
 
