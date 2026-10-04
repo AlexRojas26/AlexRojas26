@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Plants And Minerals Are Bound To Predestination. The Faithful Is Only Bound To The Divine Orders." — *Muhammad Iqbal*
+> "Rule No.1: Never Lose Money. Rule No.2: Never Forget Rule No.1." — *Warren Buffett*
 <!-- QUOTE_END -->
 
