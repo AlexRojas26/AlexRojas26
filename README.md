@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Look for the answer inside your question." — *Rumi*
+> "The Way To Get Started Is To Quit Talking And Begin Doing." — *Walt Disney*
 <!-- QUOTE_END -->
 
