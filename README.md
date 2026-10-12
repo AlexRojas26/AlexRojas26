@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "I'm most proud of my family." — *Muhammad Ali*
+> "The Golden Age Is Before Us, Not Behind Us." — *William Shakespeare*
 <!-- QUOTE_END -->
 
