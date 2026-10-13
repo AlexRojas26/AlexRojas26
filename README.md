@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "The Golden Age Is Before Us, Not Behind Us." — *William Shakespeare*
+> "Tear off the mask. Your face is glorious." — *Rumi*
 <!-- QUOTE_END -->
 
