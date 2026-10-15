@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "The best brains of the nation may be found on the last benches of the classroom." — *Abdul Kalam*
+> "I Never Gave Up On Country Music Because I Knew What I Was Doing Was Not That Bad." — *Willie Nelson*
 <!-- QUOTE_END -->
 
