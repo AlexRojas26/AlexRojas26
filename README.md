@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "I Never Gave Up On Country Music Because I Knew What I Was Doing Was Not That Bad." — *Willie Nelson*
+> "The wound is the place where the Light enters you." — *Rumi*
 <!-- QUOTE_END -->
 
