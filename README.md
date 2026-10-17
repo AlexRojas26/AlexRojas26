@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "The wound is the place where the Light enters you." — *Rumi*
+> "Technological Progress Is Like An Axe In The Hands Of A Pathological Criminal." — *Albert Einstein*
 <!-- QUOTE_END -->
 
