@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Technological Progress Is Like An Axe In The Hands Of A Pathological Criminal." — *Albert Einstein*
+> "Marriage Is Like Putting Your Hand Into A Bag Of Snakes In The Hope Of Pulling Out An Eel." — *Leonardo Da Vinci*
 <!-- QUOTE_END -->
 
