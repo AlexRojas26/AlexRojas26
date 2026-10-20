@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Israel, As The Jewish State, Must Disappear From The Map." — *Ahmed Yassin*
+> "I Guess I Don'T So Much Mind Being Old, As I Mind Being Fat And Old." — *Benjamin Franklin*
 <!-- QUOTE_END -->
 
