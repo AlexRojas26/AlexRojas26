@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "No One Changes The World Who Isn'T Obsessed." — *Billie Jean King*
+> "Even The Darkest Night Will End And The Sun Will Rise." — *Victor Hugo*
 <!-- QUOTE_END -->
 
