@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Almost All Our Desires, When Examined, Contain Something Too Shameful To Reveal." — *Victor Hugo*
+> "If you love someone, you are always joined with them - in joy, in absence, in solitude, in strife." — *Rumi*
 <!-- QUOTE_END -->
 
