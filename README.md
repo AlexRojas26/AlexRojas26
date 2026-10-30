@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "If you love someone, you are always joined with them - in joy, in absence, in solitude, in strife." — *Rumi*
+> "A Riot Is The Language Of The Unheard." — *Martin Luther King, Jr.*
 <!-- QUOTE_END -->
 
