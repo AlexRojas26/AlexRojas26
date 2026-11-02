@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Fear Allah, for that is fortune; indifference to Allah is misfortune." — *Umar ibn Al-Khattāb (R.A)*
+> "Champions have to have the skill and the will. But the will must be stronger than the skill." — *Muhammad Ali*
 <!-- QUOTE_END -->
 
