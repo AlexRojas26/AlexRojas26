@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "I Never Think Of The Future - It Comes Soon Enough." — *Albert Einstein*
+> "What One Writer Can Make In The Solitude Of One Room Is Something No Power Can Easily Destroy." — *Salman Rushdie*
 <!-- QUOTE_END -->
 
