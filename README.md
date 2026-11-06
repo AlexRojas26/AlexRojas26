@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "What One Writer Can Make In The Solitude Of One Room Is Something No Power Can Easily Destroy." — *Salman Rushdie*
+> "It Is Better To Deserve Honors And Not Have Them Than To Have Them And Not Deserve Them." — *Mark Twain*
 <!-- QUOTE_END -->
 
