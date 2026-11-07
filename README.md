@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "It Is Better To Deserve Honors And Not Have Them Than To Have Them And Not Deserve Them." — *Mark Twain*
+> "Our Scientific Power Has Outrun Our Spiritual Power. We Have Guided Missiles And Misguided Men." — *Martin Luther King, Jr.*
 <!-- QUOTE_END -->
 
