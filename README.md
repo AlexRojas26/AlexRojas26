@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Our Scientific Power Has Outrun Our Spiritual Power. We Have Guided Missiles And Misguided Men." — *Martin Luther King, Jr.*
+> "He who understands humanity seeks solitude." — *Ali ibn Abi Talib (R.A)*
 <!-- QUOTE_END -->
 
