@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "He who understands humanity seeks solitude." — *Ali ibn Abi Talib (R.A)*
+> "Joy In Looking And Comprehending Is Nature'S Most Beautiful Gift." — *Albert Einstein*
 <!-- QUOTE_END -->
 
