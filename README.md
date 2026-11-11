@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "He who avoids complaint invites happiness." — *Abu Bakr (R.A)*
+> "For 2,500 years, India has never invaded anybody." — *Abdul Kalam*
 <!-- QUOTE_END -->
 
