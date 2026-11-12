@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "For 2,500 years, India has never invaded anybody." — *Abdul Kalam*
+> "Do not take someone's silence as his pride, perhaps he is busy fighting with his self." — *Ali ibn Abi Talib (R.A)*
 <!-- QUOTE_END -->
 
