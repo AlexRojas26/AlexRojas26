@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "Success Depends Upon Previous Preparation, And Without Such Preparation There Is Sure To Be Failure." — *Confucius*
+> "My Father Always Told Me That All Businessmen Were Sons Of Bitches, But I Never Believed It Till Now." — *John F. Kennedy*
 <!-- QUOTE_END -->
 
