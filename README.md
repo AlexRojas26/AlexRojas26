@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "My Father Always Told Me That All Businessmen Were Sons Of Bitches, But I Never Believed It Till Now." — *John F. Kennedy*
+> "We should remember that there are nations which meet more than 30 to 60% of their power requirements through the nuclear power system." — *Abdul Kalam*
 <!-- QUOTE_END -->
 
