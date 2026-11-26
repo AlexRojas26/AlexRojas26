@@ -1,6 +1,6 @@
 # AlexRojas26
 Hi there, I'm Alex
 <!-- QUOTE_START -->
-> "The Only True Wisdom Is In Knowing You Know Nothing." — *Socrates*
+> "There is a way between voice and presence, where information flows. In disciplined silence it opens; with wandering talk it closes." — *Rumi*
 <!-- QUOTE_END -->
 
